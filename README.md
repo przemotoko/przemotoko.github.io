@@ -1,2 +1,0 @@
-# przemotoko.github.io
-sdaasdasda
